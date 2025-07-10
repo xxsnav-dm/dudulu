@@ -4,7 +4,7 @@
 嘟嘟噜二次元理想乡是一个专注于二次元文化的社区平台，为动漫爱好者提供了一个集观看、交流和社交于一体的空间。它不仅提供丰富的动漫资源，还具备实时更新提醒、个性化推荐等功能。用户可以在这里追番、查看热门动漫排行榜，还能与其他二次元爱好者分享心情、交流心得。此外，该平台还支持多种播放模式，如自动播放、连续播放等，让用户能够自由掌控观影体验。
 
 <p><strong>一键访问：</strong><a href="https://www.xxsnav.com/sites/15925.html" target="_blank" ><strong>嘟嘟噜二次元理想乡最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://www.xxsnav.com/favorites/dongmanziyuan" target="_blank" ><strong>动漫资源</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://dongmandaohang.sodanav.com" target="_blank" ><strong>动漫网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
 ### 功能特点
